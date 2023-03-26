@@ -1,3 +1,3 @@
 # -1-2-
 тз 
-https://drive.google.com/drive/folders/1n-L-Er0IHG996rRKK83VPkO7fUIcvdzQ?usp=share_link
+https://docs.google.com/document/d/1MybT889oUcN1cAqmJdnwtffyFGf3R8YB/edit?usp=sharing&ouid=107891714795269024671&rtpof=true&sd=true
